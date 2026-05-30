@@ -45,11 +45,9 @@ The reference number must NOT appear in the title. It must appear alone on the f
 
 ---
 
-Three locations for pickup close to these addresses (final pickup address to be confirmed in Messenger):
+Location for pickup near below address. Final address to be given in Messenger:
 
-26710 Frontage Rd, Boerne, TX 78015 (Leon Springs)
-35065 I-10, Boerne, TX 78006 (Boerne)
-5534 University Heights Blvd, San Antonio, TX 78249 (San Antonio)
+35065 I-10, Boerne, TX 78006
 
 Cash, Venmo, Cash App, or Apple Cash. Local pickup only.
 
@@ -65,11 +63,9 @@ Foxwood Cozy Area Rug 8x10 - Cream
 **Description:**  
 Brand new, never used. Retails at Costco for $399.99. The Foxwood Cozy collection has a soft, textured pile with a warm cream tone that works in just about any room. Low-profile feel underfoot and durable enough for everyday use.
 
-Three locations for pickup close to these addresses (final pickup address to be confirmed in Messenger):
+Location for pickup near below address. Final address to be given in Messenger:
 
-26710 Frontage Rd, Boerne, TX 78015 (Leon Springs)
-35065 I-10, Boerne, TX 78006 (Boerne)
-5534 University Heights Blvd, San Antonio, TX 78249 (San Antonio)
+35065 I-10, Boerne, TX 78006
 
 Cash, Venmo, Cash App, or Apple Cash. Local pickup only.
 
